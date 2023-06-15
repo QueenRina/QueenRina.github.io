@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
+How did I end up doing this!?!
+:scream:
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+***I DON'T KNOW WHAT IM DOING!!! I'M SCARED!!***
